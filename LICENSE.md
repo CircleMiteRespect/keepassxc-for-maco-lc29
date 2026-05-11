@@ -1,4 +1,4 @@
-# 
+# Get the ultimate KeePassXC for macOS helper with new KeePassXC for macOS Helper | two-factor-authentication + phishing-detection. Featuring two-factor-authentication and
 
 
 
